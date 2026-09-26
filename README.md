@@ -4,7 +4,7 @@
 
 I build audiences and communities for fintechs, founders and public figures, then turn them into distribution. Over the last five years that has meant running a global community for a Y Combinator fintech, founding a freelancing education movement that now counts more than 13,000 members, and growing a personal channel past 150,000 followers across six platforms.
 
-My brand voice is what I call "founder next door": warm, transparent, grounded in Swahili culture.
+
 
 ## Numbers I stand behind
 
